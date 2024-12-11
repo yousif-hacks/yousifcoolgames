@@ -4,4 +4,4 @@ if google sites is blocked for you i will have game on my (yousifgamecool) websi
 
 DO NOT ABUSE THIS FOR INAPPROPRIATE REASONS 
 
-if any bugs email [Webcreatoryousif@gmail.com]
+if any bugs email [webcreatoryousif@gmail.com]
